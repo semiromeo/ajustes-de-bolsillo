@@ -1,0 +1,2 @@
+# ajustes-de-bolsillo
+Sinslqanql
